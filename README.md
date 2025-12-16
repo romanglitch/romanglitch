@@ -1,1 +1,1 @@
-### 🚀 DEV BOBR KURWA
+### 🚀 DEV BOBR :)
